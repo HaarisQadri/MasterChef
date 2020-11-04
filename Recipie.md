@@ -1,0 +1,11 @@
+- The first secret to a good french fry is to make sure you use the **right potatoes**. High starch potatoes like Idaho potatoes (also called Russet potatoes) are the best because they’re dense and have the least amount of moisture.
+- As soon as you cut the potatoes into strips, transfer them to a bowl of cold water with a tablespoon of lemon juice. This will prevent the potatoes from going brown.
+- Use the right oil for frying french fries. Refined **peanut oil** has been found to be the best to use for fries but **canola** or **safflower oil** are great too.
+- Fry the potatoes twice, once at a lower temperature which actually cooks the inside of the fries to the perfect temperature, and once at a higher temperature, which will turn the outside of the fries golden brown and crispy.
+
+
+
+1. **Make the gravy:** Melt the butter over medium heat in a saucepan. Add the herbs and cook for about 3o seconds. Whisk in the flour and cook for another 2 minutes. Add the broths, and whisk until everything comes to a boil. Add your cornstarch slurry and stir until your gravy thickens, then season to taste with salt and pepper.
+2. **Prep the potatoes:** Wash the potatoes and peel the skin if you want. I personally left the skin on for my fries. Cut the potatoes into 1/3 inch slices and then into 1/3 inch sticks. Soak the fries in a bowl of ice water for 30 minutes.
+3. **Cook the fries:** Heat a large pot with oil to 325F. I suggest using a frying thermometer to make sure you have the right temperature. Pat the fries as dry as you can get them and cook in batches for 5-7 minutes until they’re light brown. Transfer them to a rack or paper towel lined bowl. Increase the oil’s temperature to 350F and, in batches, cook the fries for 2-3 minutes until they are crisp and golden brown. Season lightly with salt and pepper.
+4. **Assemble the poutine:** If the gravy has cooled down, heat it in the saucepan until it’s nice and hot. Add the fries to a bowl, top with room temperature cheese curds, then pour gravy over all the curds. Let everything sit for at least a minute so that the cheese has a chance to melt.
